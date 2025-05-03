@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on <br>🤝 I’m looking for help with anything<br>🌱 I’m currently learning new thinks<br>💬 Ask me about myself<br>
+🔭 I’m currently working on personal and collaborative development projects <br>🤝  I’m currently learning new technologies and improving my skills<br>🌱  I’m open to collaborations and learning opportunities<br>💬 Ask me anything about myself — I’m Amritanshu Kumar, a B.Tech student passionate about tech<br>
 
 
 ## 🌐 Socials:
